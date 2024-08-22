@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CharlesManalo
+- 🌱 I’m currently learning Java programming, Css, Html and Python
+- 💞️ I’m looking to collaborate on Projects
+- 📫 How to reach me Contact me on my Telegram No. 09637417142 (Luxion)
